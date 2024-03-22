@@ -1,2 +1,2 @@
 # 1eldnoa
- personal repository
+The best coder ever, actually.
